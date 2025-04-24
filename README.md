@@ -1,1 +1,1 @@
-# selalu bersyukur alhamdulillah
+# selalu bersyukur luar biasa
